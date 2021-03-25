@@ -13,16 +13,3 @@ afridi afridi afrid FTOPFOHUGFKERAJHUGKAER
 ERVJDBCXNM
 CWJVJDUD
 FRHHVUHHRHGUEHHFGFGB
-fdgfkjkfhdg
-fkgvfdbg'df
-sfjfd
-jgfdfkfd
-dfbkg
-fmbkgf
-kbgfbg
-sb
-gdjfsbjd
-bsd
-bsd
-kbkgmkbgfbtj
-ok
